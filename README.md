@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on teter
 - 📫 How to reach me tocen
 - 😄 Pronouns: nice
-- ⚡ Fun fact: hohoho+
+- ⚡ Fun fact: hohoho++
 - 
 <!---
 katokpetr/katokpetr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
