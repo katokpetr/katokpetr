@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on teter
 - 📫 How to reach me tocen
 - 😄 Pronouns: nice
-- ⚡ Fun fact: hoh
+- ⚡ Fun fact: hoho
 
